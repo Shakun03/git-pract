@@ -1,35 +1,3 @@
-jiiikmkmipotato
-:wq
+making some changes and trying to share them remotely
 
-
-
-
-
-:wq
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-:wq
-
-
-__
-:wq
-
-
-
-mkvgmtlgmtklgmtkglbm
-
-
-'d'
 
